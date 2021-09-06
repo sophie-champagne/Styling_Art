@@ -31,3 +31,17 @@ https://www.sezane.com/us/product/mia-jumper/black#size-S
 https://www.sezane.com/us/product/felix-jumper/black#size-XS
 ![image](https://user-images.githubusercontent.com/86581871/132113221-b92aa5a8-2515-4012-9625-912dbb3e958f.png)
 
+Galartsy: 
+![image](https://user-images.githubusercontent.com/86581871/132145103-4bec7798-e2fe-4016-b4e3-a64b14d5d71c.png)
+
+https://galartsy.com/products/sunflowers-in-vase-canvas-boots
+
+![image](https://user-images.githubusercontent.com/86581871/132145159-b5f14f12-ecbb-46d9-b641-5519cd6158b0.png)
+
+https://galartsy.com/products/the-birth-of-venus-underbust-corset-belt
+
+![image](https://user-images.githubusercontent.com/86581871/132145179-dc642c4c-2971-4ea1-9321-8716308c2c54.png)
+https://galartsy.com/products/embroidered-line-art-face-sweater
+
+
+
